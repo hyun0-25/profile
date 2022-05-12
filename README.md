@@ -1,1 +1,1 @@
-# skku-todo
+# skku-my profile
